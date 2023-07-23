@@ -20,9 +20,9 @@ https://www.youtube.com/watch?v=NVGAz4d2GDw&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%
 ## 如何减肥
 
 ### 轻断食减肥
-https://www.youtube.com/watch?v=QWxMFMWD_p0&t=315s&ab_channel=%E6%96%B9%E8%88%9F%E5%AD%90%E5%AE%98%E6%96%B9%E9%A2%91%E9%81%93FangZhouzi-OfficialChannel
-https://www.youtube.com/watch?v=_B7YLIlQ24Y&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%AB%E7%94%9F%E4%B8%AD%E6%96%87%E5%81%A5%E5%BA%B7%E7%9F%A5%E8%AD%98
-https://www.youtube.com/watch?v=N9m2ztLYWyM&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%AB%E7%94%9F%E4%B8%AD%E6%96%87%E5%81%A5%E5%BA%B7%E7%9F%A5%E8%AD%98
+1. https://www.youtube.com/watch?v=QWxMFMWD_p0&t=315s&ab_channel=%E6%96%B9%E8%88%9F%E5%AD%90%E5%AE%98%E6%96%B9%E9%A2%91%E9%81%93FangZhouzi-OfficialChannel
+2. https://www.youtube.com/watch?v=_B7YLIlQ24Y&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%AB%E7%94%9F%E4%B8%AD%E6%96%87%E5%81%A5%E5%BA%B7%E7%9F%A5%E8%AD%98
+3. https://www.youtube.com/watch?v=N9m2ztLYWyM&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%AB%E7%94%9F%E4%B8%AD%E6%96%87%E5%81%A5%E5%BA%B7%E7%9F%A5%E8%AD%98
 
 ### 睡眠中减肥
 https://www.youtube.com/watch?v=hVr5ETRnCkg&t=60s&ab_channel=%E6%9F%8F%E6%A0%BC%E9%86%AB%E7%94%9F%E4%B8%AD%E6%96%87%E5%81%A5%E5%BA%B7%E7%9F%A5%E8%AD%98
@@ -40,8 +40,8 @@ https://www.youtube.com/watch?v=B7f_7ifJpJc&t=511s&ab_channel=%E6%9F%8F%E6%A0%BC
 ## 冥想与修心
 
 ### 冥想的作用与好处
-https://www.youtube.com/watch?v=Wj6xn6QwOJw&ab_channel=%E7%84%A1%E5%B8%B8%E6%9C%89%E7%94%9F
-https://www.youtube.com/watch?v=wu-tBDhmkB4&ab_channel=%E5%B0%8FLin%E8%AF%B4
+1. https://www.youtube.com/watch?v=Wj6xn6QwOJw&ab_channel=%E7%84%A1%E5%B8%B8%E6%9C%89%E7%94%9F
+2. https://www.youtube.com/watch?v=wu-tBDhmkB4&ab_channel=%E5%B0%8FLin%E8%AF%B4
 
 ### 金刚经解读
 
